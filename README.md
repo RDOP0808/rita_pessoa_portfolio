@@ -1,1 +1,0 @@
-# rita_pessoa_portfolio
